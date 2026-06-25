@@ -6,5 +6,5 @@
 - 🐺 Gosto de lobos...
 - 📖 Gosto de estudar...
 
-![](https://media.tenor.com/0w2EUKdt8u4AAAA1/superbad-head-nod.webp)
+![](https://media1.tenor.com/m/h8HCN5XDKj8AAAAC/goku-black-goku-black-smile.gif)
 ![](https://media1.tenor.com/m/4Ds8A3wAsYAAAAAC/goku-black.gif)
