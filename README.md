@@ -7,5 +7,4 @@
 - 📖 Gosto de estudar...
 
 ![](https://media.tenor.com/0w2EUKdt8u4AAAA1/superbad-head-nod.webp)
-![](https://media1.tenor.com/m/nAJCHJAAk0sAAAAd/superbad-superbad-drawing.gif)
 1[](https://media1.tenor.com/m/OP0xkfYMhfYAAAAC/jonah-hill-wtf.gif)
